@@ -1,1 +1,1 @@
-# caringal-garis-ma-ibo
+# caringal-garis-manibo
